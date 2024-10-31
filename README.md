@@ -20,3 +20,5 @@ Homework-13
 [Xuất sắc]9. Làm quen với thủ tục : https://scratch.mit.edu/projects/1089751949/
 
 [Xuất sắc]10. Làm quen với thủ tục : https://scratch.mit.edu/projects/1089774229/
+
+[Bài Tập Tổng Hợp]: https://scratch.mit.edu/projects/1089785294/
