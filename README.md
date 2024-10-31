@@ -3,11 +3,11 @@ Homework-13
 
 [Cơ bản]1. Làm quen với thủ tục : https://scratch.mit.edu/projects/1089604457/
 
-[Cơ bản]2. Làm quen với thủ tục :
+[Cơ bản]2. Làm quen với thủ tục : https://scratch.mit.edu/projects/1089612246/
 
-[Cơ bản]3. Làm quen với thủ tục :
+[Cơ bản]3. Làm quen với thủ tục : https://scratch.mit.edu/projects/1089626008/
 
-[Cơ bản]4. Làm quen với thủ tục :
+[Cơ bản]4. Làm quen với thủ tục : https://scratch.mit.edu/projects/1089630638/
 
 [Khá]5. Làm quen với thủ tục :
 
