@@ -13,7 +13,7 @@ Homework-13
 
 [Khá]6. Làm quen với thủ tục : https://scratch.mit.edu/projects/1089681276/
 
-[Giỏi]7. Làm quen với thủ tục :
+[Giỏi]7. Làm quen với thủ tục : https://scratch.mit.edu/projects/1089699340/
 
 [Giỏi]8. Làm quen với thủ tục :
 
